@@ -1,0 +1,1 @@
+# Kursova_SPZ_Ivanchuk
